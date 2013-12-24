@@ -1,0 +1,3 @@
+Welcome to Dunya Trade Hub.Com one of the leading best trusted online shopping portal for consumer in Pakistan. We provide high quality branded products at best prices to customers, featuring Digital Cameras & Camcorders, Computers & Laptops, Electronic Products, Home & Kitchen Appliances, Islamic Products, Huge Lifesyle Range, Mobile Phones, Personal Care & Grooming Kits, Tablet PCs, Watches, Apparel, Kids Toys & Games and more!
+ 
+We try to make your online shopping experience should be effortless and enjoyable for ensuring this we have an excellent team of customer service consultant working so dedicatedly and honestly for providing great assistance for free cash on delivery on all of your purchases anywhere in Pakistan.
